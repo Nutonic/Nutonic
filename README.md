@@ -9,7 +9,7 @@ Our digital accessibility platform helps purpose-driven organizations learn the 
 
 I'm interested in talking with strong MEAN, or Java developers, Strong Manual QA people, Data and Product Management. Right accross the board in seniority
 - 💞️ With over 25 years of expertise in the sensitive and delicate recruitment of talent, who are top performers and not looking actively outside of outstanding opportunities. We will give you a confidential, private and safe road to enquiry
-Email is mbrazao@erssentialaccessibillity.com
+
 - 📫 How to reach me ...905 617 0728
 - mbrazao@essentialaccessibility.com
 www.essentialaccessibility.com
