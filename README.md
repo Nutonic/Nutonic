@@ -1,9 +1,22 @@
-- 👋 Hi, I’m @Nutonic, name is Max Brazao and I'm also on linkedin for a deeper profile https://www.linkedin.com/in/maxbrazao/. I'm the president and founder of Temple Selection, an executive search company, serving companies who look to hire best in class people.
-- 👀 I and Temple are a different type of search and recruitment professional. With over 20 years representing artists and engineers, leaders and operations in technology and product for multiple domains, I'm retained when all others fail to solve the hardest to secure positions. I typically employ headhunt directly techniques (called woo and court in industry), as well as other leading best in class inroduction and negotiation services. In this proccess, being highly respectfully for companies and people in the journey is necessary. People and companies trust us for truth, transparancy and confidentiality. I and we, "lay it out for all concerned" so clear closiing decisions can be made by you, on your career as well as our clients. Typically I work on an exclusive or retained basis with external clients.
+👋 Hello, Nutonic is Max Brazao- that's me, Hiya ! 
+🌟 Manager of Talent Acquisition at Smart One Solutions
 
-- 📫 How to reach me ...905 617 0728
-- max@templeselect.com.com
-<!---
-Nutonic/Nutonic is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+🌍 Building a Culture-First technology Organization 🌟
+
+At Smart One Solutions, we believe that the heartbeat of any great organization is its culture. 🌈 Our mission is to create a workplace that thrives on empathy, collaboration, kindness, diversity, and focused personal and business growth. We're not just hiring employees; we're building a family of passionate individuals who share our values. No lie, talk to me and experience that. My boss is Massimo Mancini and together we build a different company under our CEO, Ted Maulluci's dream. 
+
+🤝 About Smart One Solutions:
+🤝 We’re an award-winning Canadian technology company that transforms buildings into a smart community. Together, we have the opportunity to create a smarter future for the communities we support. We are in fast growth mode and have been grwoing from strength to strength since 2016.
+🌱 We prioritize empathy, understanding that it's the foundation of effective collaboration.
+🤗 Kindness is in our DNA – it's how we treat each other and our customers.
+🌎 We celebrate diversity because different perspectives make us stronger.
+🎯 We're focused on innovation and excellence in everything we do.
+
+🔍 Looking for the Best and the Brightest wich is NOT congruent with qualifications and experiences alone, it is WHO you are that impresses us:
+Are you someone who embodies these qualities? 🚀 We're always on the lookout for talented individuals who want to be part of a team that's making a difference in the world, and we are making a difference. Join us in our mission to create smart solutions and a brighter future.
+
+📫 Let's Connect:
+If you're interested in becoming a part of our dynamic team or want to learn more about Smart One Solutions, don't hesitate to reach out and we can have a fun conversation. Let's connect, collaborate, and make a positive impact together!
+
+🌐 Visit our website: [www.smartone.ca]
+📧 Contact me: [max.brazao@smart-one.ca] and at +1 289 819 6884 (office) or at 905 617 0728 (cell)
