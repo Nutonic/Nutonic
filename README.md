@@ -1,16 +1,24 @@
-👋 Hello, Nutonic is Max Brazao, you can find me at all the usual social media channels.
-🌟 Recruiter, Executive Search Consultant, Talent Acquisition Director, Manager, IC. 
+Temple Selection | Executive Search & Talent Strategy
 
-🌍 Protector of colaboration, connection and utopian culture of outstanding talent and people 🌟
+Connecting visionaries with opportunity.
+At Temple Selection, we believe recruitment is a craft—equal parts data, intuition, and human connection. With a foundation in direct search, we specialize in building high-impact teams for growth-focused organizations across Canada, and accross multiple vertical domains.
 
-I have proven that different to convention not only exsists, it thrives. Compromising culture for growth doesn't need to happen at all and while character hiring bulds bulture, marrying that with exceptional talent, empathy and curiosity allows for greatness to seed in staffing large and small enterprises. I champion this.  
+What we do:
 
-🔍 Looking for the Best and the Brightest which is NOT congruent with qualifications and experiences alone, it is WHO you are that impresses me and I will always put character first:
-Are you someone who embodies these qualities? 🚀 We're always on the lookout for talented individuals who want to be part of a team that's making a difference in the world, and we are making a massive difference. Join us in our mission to create smart solutions and a brighter future in Canada. 
+Executive & technical search for leadership and specialist roles
+Talent mapping, market intelligence, and confidential succession planning
+Industry expertise spanning technology, software and saas, manufacturing, engineering services, finance, leadership and more
+How we work:
 
-📫 Let's Connect:
-If you're interested in connecting with me, don't hesitate to reach out and we can have a fun conversation. Let's connect, collaborate, and make a positive impact together!
+Proactive, research-driven sourcing—never transactional
+Rigorous candidate assessment: skills, values, and culture fit
+Transparent, ethical, and partnership-focused process
+Why Temple:
+
+40%+ improvement in business outcomes for clients who invest in top-tier search
+Deep network, local insight, and a commitment to diversity and inclusion
+Trusted by founders, boards, and hiring leaders for critical mandates
 
 🌐 Visit our website: www.templeselection.com
-📧 Contact me: [max@templeselection.com] and at 905 617 0728 (cell)
+📧 Contact me: [max@templeselection.com] and at 289 295 1732
 Be the difference that makes the difference. 
